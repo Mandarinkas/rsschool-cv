@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Mandarinkas.github.io/rsschool-cv/cv
