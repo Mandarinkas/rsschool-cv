@@ -14,3 +14,9 @@ I learn English
 
 I have some skills on layout
 
+
+### What i like
+I like ice-cream and black chocolate,
+playing basketball, anime and interesting tasks
+
+
